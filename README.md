@@ -2,7 +2,7 @@
 - 👀 I’m interested in Genshin Impact
 - 🌱 I’m currently learning something idk
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me. You can't
+- 📫 How to reach me. You can't thats too bad
 
 <!---
 Desperate4HuTao/Desperate4HuTao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
